@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 👋
+### Boas-vindas ao meu perfil 👋
 
 Meu nome é Pedro Vieira Durães e sou apaixonado por tecnologia; tenho contato com essa área desde os 08 anos e desde então tenho aprimorado minhas habilidades. Além de ter se tornado um grande hobby.
 
